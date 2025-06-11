@@ -1,1 +1,1 @@
-hi im xionti/fish my friends call me aqua or eli, discord friends call me yuu. though if you met me on ponytown please stick with xionti or fish, I am CLOSETED ftm at the moment so a lot of my family and friends dont know yet. my pronouns are he/him
+hi im xionti/fish my friends call me aqua or eli/ellie, discord friends call me yuu. though if you met me on ponytown please stick with xionti or fish, I am CLOSETED ftm at the moment so a lot of my family and friends dont know yet. my pronouns are he/him
